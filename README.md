@@ -4,4 +4,4 @@ active on 18+ enstars or genshin area
 
 usually offtab or making ponies please whisper to talk to me
 
-[rentry](https://rentry.co/wip)       [guestbook]        
+[rentry](https://rentry.co/wip)       [guestbook](https://guncest.123guestbook.com)
